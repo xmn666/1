@@ -6,9 +6,9 @@
 最新的平台回家页面  最新的平台回家页面https://github.com/xmn666/1       <br>
 
 # 最新苹果安卓下载地址2020年01月10日更新
-### [t.i4322.com](http://t.i4322.com/)
-### [t.i4322.com](http://t.i4322.com/)
-### [t.i4322.com](http://t.i4322.com/)<br>
+### [iu85.com](http://iu85.com/)
+### [iu85.com](http://iu85.com/)
+### [iu85.com](http://iu85.com/)<br>
 备用下载地址如下<br>
 my53.xyz<br>
 ht73.xyz<br>
