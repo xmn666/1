@@ -7,11 +7,11 @@
 
 # 最新苹果安卓下载地址2020年02月26日更新
 ### [iu85.com](http://iu85.com/)
-### [iu85.com](http://iu85.com/)
-### [iu85.com](http://iu85.com/)<br>
+### [ea63.com](http://ea63.com/)
+### [re82.com](http://re82.com/)<br>
 备用下载地址如下<br>
 ea63.com<br>
-re82.comz<br>
+re82.com<br>
 uv06.com<br>
 xmnl.cc<br>
 
