@@ -5,24 +5,14 @@
 请立刻收藏保存本页！！<br>
 最新的平台回家页面  最新的平台回家页面https://github.com/xmn666/1       <br>
 
-# 最新苹果安卓下载地址2020年01月10日更新
+# 最新苹果安卓下载地址2020年02月26日更新
 ### [iu85.com](http://iu85.com/)
 ### [iu85.com](http://iu85.com/)
 ### [iu85.com](http://iu85.com/)<br>
 备用下载地址如下<br>
-my53.xyz<br>
-ht73.xyz<br>
-270a.xyz<br>
-3sjw.xyz<br>
-5hzt.xyz<br>
-akef.xyz<br>
-7flj.xyz<br>
-a5of.xyz<br>
-apnx.xyz<br>
-pjgm.xyz<br>
-iy0o.xyz<br>
-e0e9.xyz<br>
-dmjs.xyz<br> 
+t.sf6.xyz<br>
+t.bz6.xyz<br>
+t.bj6.xyz<br>
 
 
 # 其他
