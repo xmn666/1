@@ -10,9 +10,10 @@
 ### [iu85.com](http://iu85.com/)
 ### [iu85.com](http://iu85.com/)<br>
 备用下载地址如下<br>
-t.sf6.xyz<br>
-t.bz6.xyz<br>
-t.bj6.xyz<br>
+ea63.com<br>
+re82.comz<br>
+uv06.com<br>
+xmnl.cc<br>
 
 
 # 其他
