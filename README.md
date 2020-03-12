@@ -1,7 +1,3 @@
-# witch
-# 直播平台回家页
-最新的平台回家页面https://github.com/xmn666/1       <br>
-
 # 最新苹果安卓下载地址2020年02月26日更新
 ### [iu85.com](http://iu85.com/)
 ### [ea63.com](http://ea63.com/)
