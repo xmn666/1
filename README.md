@@ -1,12 +1,15 @@
-# 最新苹果安卓下载地址2020年02月26日更新
-### [iu85.com](http://iu85.com/)
-### [ea63.com](http://ea63.com/)
-### [re82.com](http://re82.com/)<br>
+# 最新苹果安卓下载地址2020年03月19日更新
+### [bz6.xyz](http://bz6.xyz/)
+### [bj6.xyz](http://bj6.xyz/)
+### [sf6.xyz](http://sf6.xyz/)<br>
 备用下载地址如下<br>
-ea63.com<br>
-re82.com<br>
-uv06.com<br>
-xmnl.cc<br>
+cat6.xyz<br>
+dx666.xyz<br>
+da66.xyz<br>
+da666.xyz<br>
+dx123.xyz<br>
+dx456.xyz<br>
+dx789.xyz<br>
 
 # witch
 # 直播平台回家页
